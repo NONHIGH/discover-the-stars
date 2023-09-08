@@ -1,4 +1,4 @@
 #holis bobis
 #HOli / Fedelobo
 #Holi / Aaroncito
-#Holi (homofobico) 
+#Holi (racista) X2 
